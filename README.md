@@ -12,7 +12,7 @@ Sou Analista de Dados orientado a resultados, com experiência em todo o ciclo d
 
 📍 São José do Rio Preto - SP, Brasil  
 📧 rochiaveg@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/ronaldo-chiavegatti-samapaio-corrêa) | [Kaggle](https://www.kaggle.com/ronaldochiavegatti)
+🔗 [LinkedIn](https://www.linkedin.com/in/ronaldo-chiavegatti-sampaio-corr%C3%AAa-4b858a225/) | [Kaggle](https://www.kaggle.com/ronaldochiavegatti)
 
 ---
 
